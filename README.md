@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 I'm Lillie Kate, an undergraduate student studying Sustainable Technology and Investing! 
 
 <!--
 **lilliekate/lilliekate** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
